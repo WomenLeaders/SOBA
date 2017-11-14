@@ -7,7 +7,7 @@
 
 * Tiemae Roquerre
 * Kris Mondlane
-* Gili
+* Gili Vidan
 * Dazza Greenwood
 * Vienna Loi
 * Lisa Manfredi
