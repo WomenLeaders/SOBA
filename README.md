@@ -5,8 +5,16 @@
 
 ## Full Members
 
-* Tiemae
+* Tiemae Roquerre
+* Kris Mondlane
+* Gili
+* Dazza Greenwood
+* Vienna Loi
+* Lisa Manfredi
+* Ilan Levy
 
 ## Associate Members
+
+* Chris Taylor
 
 ## Affiliate Members
